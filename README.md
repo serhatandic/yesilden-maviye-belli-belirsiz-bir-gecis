@@ -1,1 +1,2 @@
-# ye-ilden-maviye-belli-belirsiz-bir-ge-i-
+# yalnızca cesurların işidir badana
+gibi dizisi 1x8
