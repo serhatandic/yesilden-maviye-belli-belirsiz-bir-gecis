@@ -1,0 +1,1 @@
+# ye-ilden-maviye-belli-belirsiz-bir-ge-i-
